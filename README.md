@@ -19,8 +19,8 @@ Here are some ideas to get you started:
 
 ### Hi there 👋
 
-My name is Woojin Oh and I am a life-long learner. If I'm not learning, I'm not living.
+My name is Woojin Oh and I am a life-long learner. If I'm not learning, I'm not living 😄
 
-I get the most fulfillment from overcoming obstacles and accomplishing goals. 
+I get the most fulfillment from overcoming obstacles and accomplishing goals 😎
 
-I strive to ask the right questions, see the bigger picture, and identify what matters most. 
+I strive to ask the right questions, see the bigger picture, and identify what matters most 🧐
