@@ -24,3 +24,6 @@ My name is Woojin Oh and I am a **life-long learner**. If I'm not learning, I'm 
 I get the most fulfillment from **overcoming obstacles** and **accomplishing goals** 😎
 
 I strive to ask the right questions, see the bigger picture, and identify what matters most 🤩
+
+This is my beloved animal
+<img src="https://i.imgur.com/sfxnMCH.jpg" alt="majestic picture of dingo" width="200">
