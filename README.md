@@ -25,4 +25,4 @@ I get the most fulfillment from **overcoming obstacles** and **accomplishing goa
 
 I strive to ask the right questions, see the bigger picture, and identify what matters most 🤩
 
-Checkout my projects to see how far I've come!
+Checkout my projects to see how far I've come! 👇👇👇
