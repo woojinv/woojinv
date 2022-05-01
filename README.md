@@ -24,3 +24,5 @@ My name is Woojin Oh and I am a **life-long learner**. If I'm not learning, I'm 
 I get the most fulfillment from **overcoming obstacles** and **accomplishing goals** 😎
 
 I strive to ask the right questions, see the bigger picture, and identify what matters most 🤩
+
+My projects are organized from *most recent to least recent*, so I suggest starting from the bottom and working your way up to see my progress!
