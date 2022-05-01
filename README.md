@@ -25,4 +25,4 @@ I get the most fulfillment from **overcoming obstacles** and **accomplishing goa
 
 I strive to ask the right questions, see the bigger picture, and identify what matters most 🤩
 
-My projects are organized from *most recent to least recent*, so I suggest starting from the bottom and working your way up to see my progress!
+Checkout my projects to see how far I've come!
