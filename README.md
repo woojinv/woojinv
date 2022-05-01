@@ -1,4 +1,4 @@
-### Hi there 👋
+
 
 <!--
 **woojinv/woojinv** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+# About Me
+
+### Hi there 👋
+
+My name is Woojin Oh and I am a life-long learner. 
+
+I get the most fulfillment from overcoming obstacles and accomplishing goals. 
+
+I strive to ask the right questions, see the bigger picture, and identify what matters most. 
