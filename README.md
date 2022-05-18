@@ -27,4 +27,4 @@ I strive to ask the right questions, see the bigger picture, and identify what m
 
 Checkout my projects to see how far I've come! 👇👇👇
 
-Reach out at oh.woojin95@gmail.com 🚀
+oh.woojin95@gmail.com 🚀
