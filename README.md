@@ -27,15 +27,4 @@ I strive to ask the right questions, see the bigger picture, and identify what m
 
 Checkout my projects to see how far I've come! 👇👇👇
 
-# About Me
-
-
-### Hi there 👋 My name is Woojin Oh
-
-I strive to ask the right questions, see the bigger picture, and identify what matters most 🤩
-
-I am a **life-long learner**, and I am most fulfilled when **overcoming obstacles** and **accomplishing goals** 😎
-
-If you're interested in teaming up, feel free to contact me at oh.woojin95@gmail.com
-
-Checkout my projects to see how far I've come! 👇👇👇
+Reach out at oh.woojin95@gmail.com 🚀
