@@ -26,5 +26,3 @@ I am most fulfilled when **overcoming obstacles** and **accomplishing goals** �
 I strive to ask the right questions, see the bigger picture, and identify what matters most 🤩
 
 Checkout my projects to see how far I've come! 👇👇👇
-
-oh.woojin95@gmail.com 🚀
